@@ -1,0 +1,1 @@
+# akriypt-day-1
